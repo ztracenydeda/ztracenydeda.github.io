@@ -1,2 +1,2 @@
 # ztracenydeda.github.io
-Stránka
+
